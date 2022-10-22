@@ -1,3 +1,3 @@
-# A-Story-By-mr.Jani.github.io
+# aStoryByMr.Jani
 # My Photography 
 hello this me
